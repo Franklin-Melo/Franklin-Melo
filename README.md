@@ -1,4 +1,4 @@
-# Olá Pessoal!:ok_man:
+# Olá Pessoal!
 
 Sou Baiano, apaixonado por tecnologia, pois através dela enxergo que posso fazer diferença na vida das pessoas.
 Nos momentos livres gosto de jogar gamer e assistir um bom filme.
